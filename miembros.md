@@ -2,7 +2,7 @@
 
 1. Lex Luthor
 2. The Joker
-3. Raven
+3. Ra
 4. Black Manta
 5. Sinestro
 6. Poison Ivy
